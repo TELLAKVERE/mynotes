@@ -1,1 +1,0 @@
-jjkjkk jooö 
