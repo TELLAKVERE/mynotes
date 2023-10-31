@@ -1,5 +1,5 @@
 
-# Arvammusartiklid
+# Arvamusartiklid
 
 ## Janne Saarikivi
 
