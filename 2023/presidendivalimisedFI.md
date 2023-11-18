@@ -12,7 +12,7 @@ https://yle.fi/a/74-20059969
 
 # 18.11.2023 Aaltola plussid
 
-M.K. (keskusta, P.V. koduerakonda) vaade sellele, miks valida Aaltola
+M.K. (keskusta, P.V. koduerakonna) vaade sellele, miks valida Aaltola
 https://twitter.com/KarnaMikko/status/1725568260882444440
 
 # 14.11.2023 Stubbi programm detailsemalt 
