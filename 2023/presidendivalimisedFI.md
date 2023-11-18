@@ -29,9 +29,9 @@ https://twitter.com/alexstubb/status/1724373234043257115
 
 Kokkuvõte artiklist: 
 * liiga tehnokraatlik lähenemine
-* "kansanturvallisuus" on nö laetud mõiste, st plahavtusohtlik. "Aalto ajab mingit jama." 
-* "Aalto on üks läbikukunud presidendikandidaat"
-* "Aalto raamat on üks mula"
+* "kansanturvallisuus" on nö laetud mõiste, st plahavtusohtlik. "Aaltola ajab mingit jama." 
+* "Aaltola on üks läbikukunud presidendikandidaat"
+* "Aaltola raamat on üks mula"
 
 Hinnang: vasakpoolsete vaates on Aaltola ohtlik ja "ektsreemsete" vaadetega isik. 
 
