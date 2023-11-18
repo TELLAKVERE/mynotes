@@ -1,4 +1,10 @@
 
+
+# 18.11.2023 Valimiste ajagraafik
+
+28.jaanuar järgmine aasta esimsee vooru hääletamispäev, 11.veebruar teise vooru hääletamispäev.
+https://vaalit.fi/aikataulut-presidentinvaalissa
+
 # 18.11.2023 Stubb ja Haavisto, Stubb ees
 
 15.11.2023
