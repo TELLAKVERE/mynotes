@@ -1,5 +1,5 @@
 
-# 29.11.2023 Stubb ja kaistepoliitika
+# 29.11.2023 Stubb ja kaitsepoliitika
 
 https://www.iltalehti.fi/politiikka/a/144ffa03-6a02-43c8-85ff-f35880d439bf
 
