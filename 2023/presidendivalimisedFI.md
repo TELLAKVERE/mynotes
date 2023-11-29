@@ -1,4 +1,37 @@
 
+# 29.11.2023 Stubb ja kaistepoliitika
+
+https://www.iltalehti.fi/politiikka/a/144ffa03-6a02-43c8-85ff-f35880d439bf
+
+Mis oleks kokkuvõte?
+
+* 5000-ne reserv, regulaarsed õppused
+* kiirvalmiduses brigaad
+* 2024 uued strateegiad: "ensin ulko- ja turvallisuuspoliittinen selonteko ja sitten puolustuspoliittinen selonteko."
+* presidendi peamsied ülesanded: "ulkopolitiikan johtaminen yhdessä valtioneuvoston kanssa, puolustusvoimien ylipäällikkyys ja arvojohtajuus."
+* ei ole küll toodud otsese tsitaadina aga ... "Mikään muu maa kuin Venäjä ei muodosta Suomelle sotilaallista uhkaa."
+* otsene tsitaad: "Ammattihenkilöstön suhde reserviin on tällä hetkellä ainoa huolenaiheeni"
+  
+
+Edasi läheb juba oelmasolevate tugevuste ülesloetlemiseks, kordame siis: 
+* Noin 900 000 miestä ja naista on saanut sotilaskoulutuksen. Sodan ajan joukkojen vahvuus on 280 000 sotilasta.
+* F35
+* Merivoimat
+* 2,4%
+* Ainoana Pohjoismaana meillä on täsmäohjukset maalle, merelle ja ilmaan. Maalla GMLRS, merellä Gabriel ja ilmassa JASSM.
+* Meillä on Euroopan suurin tykistö yhdessä Puolan kanssa: noin 1 500–1 700 putkea.
+* Ja yhdessä Saksan kanssa Euroopan suurin panssarivaunukokoelma: 209 Leopardia, Stubb luotaa nykyistä kalustoa.
+
+Lõpetuseks: 
+* "On erittäin epätodennäköistä, että Venäjän johdossa olisi vuonna 2030 liberaali demokraatti, joka olisi muuttanut Venäjän suunnan"
+* "Me olemme Nato"
+
+Mida arvata?
+
+Ilmselt ei ole eeltoodu ühe erakonna või kandidaadi seisukohad, pigem laiem konsensus Soomes. Võibolla mõjutatud reservostide ja ohvitseride hinangutest. 
+
+Veel kontekstist, tegemist IL intervjuuga (Lauri Nurmi). 
+
 
 # 18.11.2023 Valimiste ajagraafik
 
