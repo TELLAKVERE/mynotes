@@ -28,7 +28,7 @@ Lõpetuseks:
 
 Mida arvata?
 
-Ilmselt ei ole eeltoodu ühe erakonna või kandidaadi seisukohad, pigem laiem siis konsensus Soomes. Võibolla mõjutatud reservistide ja ohvitseride hinangutest. 
+Ilmselt ei ole eeltoodu ühe erakonna või kandidaadi seisukohad, pigem siis laiem konsensus Soomes. Võibolla mõjutatud reservistide ja ohvitseride hinangutest. 
 
 Veel kontekstist, tegemist IL intervjuuga (Lauri Nurmi). 
 
