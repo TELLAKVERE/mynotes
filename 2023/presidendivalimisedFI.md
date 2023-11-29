@@ -8,9 +8,9 @@ Mis oleks kokkuvõte? peamised jutupunktid?
 * 5000-ne reserv, regulaarsed õppused
 * kiirvalmiduses brigaad
 * 2024 uued strateegiad: "ensin ulko- ja turvallisuuspoliittinen selonteko ja sitten puolustuspoliittinen selonteko."
-* presidendi peamsied ülesanded: "ulkopolitiikan johtaminen yhdessä valtioneuvoston kanssa, puolustusvoimien ylipäällikkyys ja arvojohtajuus."
+* presidendi peamised ülesanded: "ulkopolitiikan johtaminen yhdessä valtioneuvoston kanssa, puolustusvoimien ylipäällikkyys ja arvojohtajuus."
 * ei ole küll toodud otsese tsitaadina aga ... "Mikään muu maa kuin Venäjä ei muodosta Suomelle sotilaallista uhkaa."
-* otsene tsitaad: "Ammattihenkilöstön suhde reserviin on tällä hetkellä ainoa huolenaiheeni"
+* otsene tsitaat: "Ammattihenkilöstön suhde reserviin on tällä hetkellä ainoa huolenaiheeni"
   
 
 Edasi läheb juba olemasolevate tugevuste ülesloetlemiseks, kordame siis: 
