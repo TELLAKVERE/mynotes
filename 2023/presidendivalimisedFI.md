@@ -3,7 +3,7 @@
 
 https://www.iltalehti.fi/politiikka/a/144ffa03-6a02-43c8-85ff-f35880d439bf
 
-Mis oleks kokkuvõte?
+Mis oleks kokkuvõte? peamised jutupunktid?
 
 * 5000-ne reserv, regulaarsed õppused
 * kiirvalmiduses brigaad
@@ -13,7 +13,7 @@ Mis oleks kokkuvõte?
 * otsene tsitaad: "Ammattihenkilöstön suhde reserviin on tällä hetkellä ainoa huolenaiheeni"
   
 
-Edasi läheb juba oelmasolevate tugevuste ülesloetlemiseks, kordame siis: 
+Edasi läheb juba olemasolevate tugevuste ülesloetlemiseks, kordame siis: 
 * Noin 900 000 miestä ja naista on saanut sotilaskoulutuksen. Sodan ajan joukkojen vahvuus on 280 000 sotilasta.
 * F35
 * Merivoimat
@@ -28,7 +28,7 @@ Lõpetuseks:
 
 Mida arvata?
 
-Ilmselt ei ole eeltoodu ühe erakonna või kandidaadi seisukohad, pigem laiem konsensus Soomes. Võibolla mõjutatud reservostide ja ohvitseride hinangutest. 
+Ilmselt ei ole eeltoodu ühe erakonna või kandidaadi seisukohad, pigem laiem siis konsensus Soomes. Võibolla mõjutatud reservistide ja ohvitseride hinangutest. 
 
 Veel kontekstist, tegemist IL intervjuuga (Lauri Nurmi). 
 
