@@ -2,8 +2,8 @@
 # 18.12.2023 Vasakpoolsed ja kaitsepoliitika
 
 Hinnag: 
-* Jah, aga" ideoloogia. Oleme valmis Venemaaga võitlema, aga mitte siis kui rünnatakse Balti riike. '
-* Minevikus vigu ei tehtud, kui hoiti Venemaaa soojasid suhteid. 
+* "Jah, aga" ideoloogia. Oleme valmis Venemaaga võitlema, aga mitte siis kui rünnatakse Balti riike. '
+* Minevikus vigu ei tehtud, kui hoiti Venemaaga soojasid suhteid. 
 
 Andersson: Puolustusliitto Natossa Suomen tulee identifioida itsensä pohjoismaiseen viitekehykseen, ei Baltian maiden ja Puolan joukkoon. 
 
