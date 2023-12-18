@@ -1,4 +1,15 @@
 
+# 18.12.2023 Vasakpoolsed ja kaitsepoliitika
+
+Hinnag: 
+* Jah, aga" ideoloogia. Oleme valmis Venemaaga võitlema, aga mitte siis kui rünnatakse Balti riike. '
+* Minevikus vigu ei tehtud, kui hoiti Venemaaa soojasid suhteid. 
+
+Andersson: Puolustusliitto Natossa Suomen tulee identifioida itsensä pohjoismaiseen viitekehykseen, ei Baltian maiden ja Puolan joukkoon. 
+
+https://www.uusisuomi.fi/uutiset/li-andersson-nakee-3-eskalaatioriskia-lahi-idassa-ja-nimeaa-suomen-suurimman-virheen-vladimir-putinin-suhteen/0aad6b25-5542-4122-a1e3-a983581e55d2
+
+
 # 29.11.2023 Stubb ja kaitsepoliitika
 
 https://www.iltalehti.fi/politiikka/a/144ffa03-6a02-43c8-85ff-f35880d439bf
