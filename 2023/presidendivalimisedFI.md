@@ -1,7 +1,7 @@
 
 # 18.12.2023 Vasakpoolsed ja kaitsepoliitika
 
-Hinnag: 
+Hinnang: 
 * "Jah, aga" ideoloogia. Oleme valmis Venemaaga võitlema, aga mitte siis kui rünnatakse Balti riike. '
 * Minevikus vigu ei tehtud, kui hoiti Venemaaga soojasid suhteid. 
 
