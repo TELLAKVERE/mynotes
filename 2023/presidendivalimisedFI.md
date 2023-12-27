@@ -1,4 +1,58 @@
 
+
+
+
+# 27.12.2023 Jah, see on Stubbi ja Haavisto vaheline võidujooks
+
+IS avaldas Taloustutkimus Oy küsitluse tulemused. 
+
+https://www.is.fi/politiikka/art-2000010078142.html
+
+## Tsitaadid
+
+
+"IS-presidentti­kyselyssä yllätys: Yksi ehdokas on ulko­poliittisena johtajana yli muiden, toinen edustavin.
+SUOMALAISET luottavat presidenttiehdokkaista eniten Pekka Haaviston (vihr) ulkopoliittiseen näkemykseen. 
+Tämä käy ilmi Ilta-Sanomien Taloustutkimuksella teettämästä kyselystä."
+
+Haavisto esimene, allpool täpsemad numbrid. Fookus eksitav, numbrites ainult ca 30%. 
+
+Artikkel võtab kokku ka vastandumise. Haavisto - vasakliit, sdp, rohelised. Stubb - kokoomus, rkp. 
+
+"Siinä varmasti näkyy viimeaikainen ulkoministerikokemus. Stubb on ollut vähän sivussa."'
+
+Haavisto - välisminister 6.6.2019–10.12.2019, 10.12.2019–20.6.2023
+Kehitysministeri 17.10.2013–24.6.2014, 24.6.2014–26.9.2014
+
+"Miesten mielestä Halla-aho, Stubb ja Haavisto ovat lähes yhtä luotettuja ulkopoliittisilta näkemyksiltään. Halla-ahoon luottaa eniten 23 prosenttia, Stubbiin 22 ja Haavistoon 21 prosenttia suomalaismiehistä.
+
+Sen sijaan naiset luottavat selvästi eniten Haaviston ulkopoliittisiin näkemyksiin. Haaviston nimesi 39 prosenttia naisvastaajista. Stubbin näkemyksiin luottaa 17 prosenttia naisista, mutta Halla-ahoon vain kuusi prosenttia."
+
+Teine vastandumine, mehed vs naised. Halla-Aho vs Haavisto. 
+
+"Haavistoon kykyihin luotetaan erityisesti nuoremmissa ikäryhmissä, mutta hän saa kannatusta melko tasaisesti kaikista ikäryhmistä. ...
+Sen sijaan Stubbin kannatus on painottunut enemmän iäkkäämpiin ihmisiin."
+
+Nooremad vs vanemad. Haavisto vs. Stubb. 
+
+Allpool veel toodud tabel vastajate ametite lõikes. Ettevõtjad usaldavad pigem 
+Halla-Ahot ja Stubbi. 
+
+Meeldetuletuseks: presidendi vastutusvaldkond  nii kaitsepoliitika kui ka välispoliitika. 
+
+## Kokkuvõtteks
+
+Ei ole tegelikult üllatav, Stubb vs. Haavisto on need 2 esimest ja teised ei suuda nende edumaad tasa teha. 
+
+## Veel lisaks ... 
+
+Eriti kaheldav selles vaates Urpilaise osalemine kampaanias, ei saavuta edu, ei pääse mõjule. 
+
+Kaitsepoliitika valikute kohta uurimuses (Taloustutkimus Oy) üllatavalt vähe küsimusi s.t. neid ei olegi. 
+
+"Kenen ulkopoliittisen näkemyksen luotat?, "Kuka edustaa Suomea parhaiten ...? " sisuliselt samasugused.  
+
+
 # 18.12.2023 Vasakpoolsed ja kaitsepoliitika
 
 Hinnang: 
