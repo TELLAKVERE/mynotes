@@ -4,7 +4,7 @@
 
 ## 2 esimese toetus ca 50% - 55% 
 
-See tähendab aga, et tavaline valija peab tegema teises voorus mitte  tegema valiku "valin parima", vaid  "valin halvimast vähem halva". 
+See tähendab aga, et tavaline valija peab teises voorus mitte tegema valiku "valin parima", vaid  "valin halvimast vähem halva". 
 
 Toetus novembris: Stubb 28%, Haavisto 26% (15.11.2023)
 Toetus detsembris: Stubb 31%, Haavisto 23% (13.12.2023)
