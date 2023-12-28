@@ -1,6 +1,23 @@
 
 
+#  28.12.2023 "Valin halvimaist vähem halva"
 
+## 2 esimese toetus ca 50% - 55% 
+
+See tähendab aga, et tavaline valija peab tegema teises voorus mitte  tegema valiku "valin parima", vaid  "valin halvimast vähem halva". 
+
+Toetus novembris: Stubb 28%, Haavisto 26% (15.11.2023)
+Toetus detsembris: Stubb 31%, Haavisto 23% (13.12.2023)
+
+https://yle.fi/a/74-20064581 
+
+## Veel lisaks ...
+
+Üks vaade, mille leidsin Twitterist presidendikampaania kohta. Ei viita konkreetsele isikule, üldpõhimõttena on see huvitav. 
+
+ERR enam ei kajastagi detsembri toetusnumbreid. Kas tõesti ei ole piisaalt aktuaalne ja uudisväärtuslik. 
+
+Tundubm et vasakliidu ja sdp liikmetel on "valin halvimast vähe halvima" tegemine kergem. 
 
 # 27.12.2023 Jah, see on Stubbi ja Haavisto vaheline võidujooks
 
