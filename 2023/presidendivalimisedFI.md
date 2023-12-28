@@ -17,7 +17,7 @@ https://yle.fi/a/74-20064581
 
 ERR enam ei kajastagi detsembri toetusnumbreid. Kas tõesti ei ole piisaalt aktuaalne ja uudisväärtuslik. 
 
-Tundubm et vasakliidu ja sdp liikmetel on "valin halvimast vähe halvima" tegemine kergem. 
+Tundub, et vasakliidu ja sdp liikmetel on "valin halvimast vähem halva" tegemine kergem. 
 
 # 27.12.2023 Jah, see on Stubbi ja Haavisto vaheline võidujooks
 
