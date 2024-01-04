@@ -2,17 +2,6 @@
 
 **Ida-Tallinna asumid**
 
-**Pirita**
-
-Iru
-Kloostrimetsa
-Kose
-Laiaküla
-Lepiku
-Maarjamäe
-Merivälja
-Mähe
-Pirita
 
 **Lasnamäe**
 
@@ -32,3 +21,14 @@ Tondiraba
 Uuslinn
 Väo
 Ülemiste
+
+**Maardu**
+
+Kallavere
+Muuga
+Kroodi
+Kärmu (Vana-Narva mnt)
+Muuga sadama piirkond
+Maardu järve äärsed alad
+
+
