@@ -2,7 +2,7 @@
 **Lääne-Tallinna asumid**
 
 
-**Haabersti: **
+**Haabersti:**
 
 
 Astangu
@@ -19,20 +19,20 @@ Väike-Õismäe
 Õismäe
 
 
-**Kristiine: **
+**Kristiine:**
 
 Järve
 Lilleküla
 Tondi
 
-**Mustamäe: **
+**Mustamäe:**
 
 Kadaka
 Mustamäe
 Siili
 Sääse
 
-**Nõmme: **
+**Nõmme:**
 
 Hiiu
 Kivimäe
