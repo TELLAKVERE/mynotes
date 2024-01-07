@@ -1,5 +1,10 @@
 
-Tallinna piirkond
+---
+pealkiri: Tallinna piirkond
+kuupäev: today
+teema: Eesti poliitika, kohalikud valimised
+---
+
 
 # Parempoolsed
 
