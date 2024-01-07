@@ -8,7 +8,7 @@ Tallinna piirkond
 
 - helinatilk.ee
 - wikipedia
-- https://rohelised.ee/volikogu/
+- rohelised.ee/volikogu
 
 
   
