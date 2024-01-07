@@ -1,9 +1,10 @@
 
 ---
 pealkiri: Tallinna piirkond
-kuupäev: today
-teema: Eesti poliitika, kohalikud valimised
+kuupäev: 07.01.2024, uuendatud 07.01.2024
 ---
+teema: Eesti poliitika, kohalikud valimised
+
 
 
 # Parempoolsed
